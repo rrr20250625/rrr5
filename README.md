@@ -33,7 +33,7 @@
 
 点击访问：<a href="https://hl421.pages.dev/">吃瓜爆料网官网首页入口</a>
 
-点击访问：<a href="https://hl390.pages.dev/">黑料网最新</a>
+点击访问：<a href="https://hl390.pages.dev/">黑料网最好</a>
 
 点击访问：<a href="https://hl413.pages.dev/">双反差婊吃瓜爆料黑料免费</a>
 
